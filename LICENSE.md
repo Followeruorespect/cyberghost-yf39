@@ -1,4 +1,4 @@
-
+Get the ultimate CyberGhost extension with CyberGhost high-speed Extension: camouflage-mode & WireGuard-support. Featuring camouflage-mode and WireGuard-support, it's the best
 
 
 
